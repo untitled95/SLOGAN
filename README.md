@@ -1,0 +1,2 @@
+# SLOGAN
+slogans my projects
